@@ -15,7 +15,7 @@ Our Projects
 Check out our latest projects showcasing our expertise and craftsmanship.
 
 Contact Us
-Email: @priyankmahera2609@gmial.com
+Email: @priyankmahera2609@gmail.com
 Phone: +91 6377525139
 Location: Rajasthan, India
 © 2025 Mahera Constructions. All Rights Reserved.
